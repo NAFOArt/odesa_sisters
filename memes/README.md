@@ -1,1 +1,1 @@
-Upload means from Dancing Queen et al here
+Upload memes from Dancing Queen et al here
